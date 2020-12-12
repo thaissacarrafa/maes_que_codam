@@ -71,10 +71,11 @@ A ideia do projeto é mostrar isso pra outras mães. Que devemos respeitar nosso
 
 
 ### Funcionalidades :ballot_box_with_check:
-- Cadastros - GET
+- Cadastros - POST
 - Apagar - DELETE
 - Busca - GET
 - Busca por ID - GET
+- Alteração de dados- PUT
  
  ### ✅Modelo com campos obrigatórios para teste
 
