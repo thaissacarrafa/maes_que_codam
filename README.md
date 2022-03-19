@@ -100,8 +100,7 @@ A ideia do projeto é mostrar isso pra outras mães. Que devemos respeitar nosso
    Ser aluna da turma On6-XP é com certeza um privilégio. Sou grata por tudo o que aprendi, todas histórias compartilhadas e por conhecer tantas mulheres incríveis! 
     Obrigada meninas por me ouvirem, por confiarem em mim pra desabafar também e muito obrigada pelo apoio neste projeto. Desejo todo sucesso pra vocês e que o mundo de oportunidades de abram pra vocês.
     
-   Ao meu esposo Felipe, obrigada por acreditar em mim mesmo antes da inscrição. Por me apoiar tanto nesse período de curso ( e em tantos outros) e por ser o melhor companheiro que eu poderia ter. 
    Agradeço a minha filha Ester, por ter o sorriso que me motiva a seguir! A ser o meu abraço nos dias cansativos e por ser minha força pra querer ser sempre melhor. Te amo filha!
-    Obrigada também a minha mãe, meu maior exemplo de que é possível ser uma boa profissional mesmo sendo mãe. Você é uma mulher incrível e espero que mulheres incríveis também sejam beneficiadas com esse projeto. Gratidão a minha sogra, Angelina, minha segunda mãe.
+    Obrigada também a minha mãe, meu maior exemplo de que é possível ser uma boa profissional mesmo sendo mãe. Você é uma mulher incrível e espero que mulheres incríveis também sejam beneficiadas com esse projeto. 
     
    E por fim mas não menos importante, Jô e Ceci, muito obrigada por tudo! Obrigada XP pela turma que nos disponibilizou. E que todas da turma VOEEEEEM! :rocket:
